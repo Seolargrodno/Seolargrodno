@@ -3,7 +3,7 @@
 - 🌱 I’m currently not learning.
 - 💞️ I’m not looking to collaborate.
 - 📫 How to reach me: E-mail seolargrodno@gmail.com or seolar@yahoo.com.
-- 😄 Pronouns: Serg
+- 😄 Pronouns: HE.
 - ⚡ Fun fact: I believe in aliens, but haven't meet them yet.
 
 <!---
